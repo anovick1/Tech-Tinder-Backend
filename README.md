@@ -12,7 +12,7 @@
 
 #### Jason Martinez: <a href="https://www.linkedin.com/in/matthew-scott95/" target="_blank" rel="noreferrer">LinkedIn</a>, <a href="github.com/jasonmar08" target="_blank" rel="noreferrer">GitHub</a>
 
-#### Matt Scott: <a href="linkedin.com/in/martinez-jason" target="_blank" rel="noreferrer">LinkedIn</a>, <a href="https://github.com/gr8tscott" target="_blank" rel="noreferrer">GitHub</a>
+#### Matthew Scott: <a href="linkedin.com/in/martinez-jason" target="_blank" rel="noreferrer">LinkedIn</a>, <a href="https://github.com/gr8tscott" target="_blank" rel="noreferrer">GitHub</a>
 
 ---
 
